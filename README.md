@@ -172,8 +172,8 @@ Do your own research and never contribute money you cannot afford to lose.
 
 ## 🔗 Official Links
 
-**X:** Coming soon  
-**Telegram:** Coming soon  
+**X:** https://x.com/UGUCOIN
+**Telegram:** https://t.me/Ugucoincommunity
 **Website:** Coming soon  
 **Litepaper:** Coming soon  
 
