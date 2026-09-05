@@ -290,7 +290,9 @@ https://t.me/Ugucoincommunity
 
 ### GitHub
 
-https://github.com/UGUCOIN
+### GitHub
+
+https://github.com/UGUCOIN/UGUCOIN
 
 ### Website
 
